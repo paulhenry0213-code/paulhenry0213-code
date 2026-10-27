@@ -16,13 +16,11 @@ My focus is on building long-term customer relationships, resolving complex case
 - International Collaboration: Kundenkommunikation auf Deutsch, Französisch und Englisch
 - AI & Automation: Kenntnisse aus der Weiterbildung zu KI im Vertrieb; Interesse an praxisnaher CRM- und Workflow-Automatisierung
 ## Career highlights | Berufliche Stationen
-### Arvato SE / Bertelsmann – Agent Customer Service | International Customer Service Specialist (2016–2024)
-Internationale Kundenbetreuung in mehreren europäischen Märkten, Bearbeitung komplexer Servicefälle und Eskalationen, Zusammenarbeit mit internen Fachbereichen.
-
-### Ganz Einfach GmbH – Customer Agent | After-Sales & E-Commerce Customer Support (2025)
+### Ganz Einfach GmbH – E-Commerce Customer Support Specialist | After-Sales (2025)
 After-Sales-Betreuung und technische Lösungsfindung für Kunden auf E-Commerce-Marktplätzen.
-
-### Invoco Helpline Communication GmbH / Sunrise Schweiz – Customer Service Agent | Customer Retention & Sales Support (2013–2016)
+### Arvato SE / Bertelsmann| International Customer Service Specialist | Escalation & Case Management (2016–2024)
+Internationale Kundenbetreuung in mehreren europäischen Märkten, Bearbeitung komplexer Servicefälle und Eskalationen, Zusammenarbeit mit internen Fachbereichen.
+### Invoco Helpline Communication GmbH / Projekt Sunrise Schweiz – International Customer Service Specialist | Escalation & Case Management (2013-2016)
 Beratung zu Telekommunikationslösungen, Kundenbindung, Vertragsverlängerungen sowie Up- und Cross-Selling.
 ## Training & certifications | Weiterbildung
 - Digital Sales Manager (IHK) — Sales Akademie, 2026
